@@ -90,4 +90,4 @@ If you are looking for an opportunity in the education sector, then you are maki
 
 For aspiring entrepreneurs, women wanting to start their own business, or investors who are looking to invest in a franchise business, you won't find a better opportunity than in the preschool sector. You can be assured that by investing in the best preschool franchise, you will not only develop a business that financially grows, but you will also have the opportunity to give back to society by investing in the future of children.
 
-Step out on faith into one of the most lucrative preschool franchise opportunities in Ahmedabad, Gujarat and start your great business today!
+Step out on faith into one of the most lucrative [preschool franchise opportunities in Ahmedabad, Gujarat](https://www.nurturelandpreschool.com/franchise/) and start your great business today!
