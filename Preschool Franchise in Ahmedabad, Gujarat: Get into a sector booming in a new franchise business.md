@@ -2,7 +2,7 @@ Many families in India are advocating for early childhood education, causing exc
 
 This article discusses what makes the preschool franchise in Gujarat the next big thing, what makes the preschool franchise business a profitable business, and how to identify the preschool franchise that will work best for you. 
 
-The Growing Need for Preschool in India
+<h2>The Growing Need for Preschool in India</h2>
 The preschool market in India is currently over ₹25000 crores and growing rapidly, as families become increasingly aware of the importance of early childhood learning. A preschool is no longer viewed as just a daycare center; it is the first step toward an educational structure and serves as a social learning time for children. There are currently many metropolitan cities like Ahmedabad and rapidly growing towns in Gujarat, where the income level and the increase in dual-income households in the last decade have been able to support the development of preschool education.
 
 Why Ahmedabad and Gujarat Are a Hotspot for Preschool Franchises
